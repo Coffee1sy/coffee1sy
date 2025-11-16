@@ -1,5 +1,10 @@
-## hello! I'm Violet!!!
-my only limits when it comes to interacting with me is if you are under 14/over 18
-I like Spider-Man, MLP, MHA, roblox Piggy, Hamilton, and many other things so feel free to interact
-I don't have many friends on here so that's why I'm usually seen by myself (it may be because I'm hardly active but ykk)
-I like to draw/animate and I know how to play 4 instruments :D
+<h1 align="center">hello!! I'm Violet</h1>
+<h3 align="center">my only limitations to interacting with me is if you are under 14/older than 18</h3>
+
+- some of my interests include: **Spider-Man, MLP, MHA, Death Note, roblox Piggy, My Street, Hamilton, etc**
+
+- hobbies: **I like to draw and animate, I'm a pretty big band kid (I know how to play 4 instruments), I like doing my makeup and my hair, and many more things**
+
+- music I like: **Metallica, Lil Peep, Olivia Rodrigo, and pretty much anything, I like all types of music (yes even country)**
+
+- that's basicalllyyyy all.. **thank you for reading :)**
