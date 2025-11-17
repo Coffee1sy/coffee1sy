@@ -7,4 +7,6 @@
 
 - music I like: **Metallica, Lil Peep, Olivia Rodrigo, and pretty much anything, I like all types of music (yes even country)**
 
+- if I don't answer, it's cuz I didn't notice, NOT because I'm ignoring you :')
+  
 - that's basicalllyyyy all.. **thank you for reading :)**
