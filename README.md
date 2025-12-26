@@ -1,12 +1,6 @@
-<h1 align="center">hello!! I'm Violet</h1>
-<h3 align="center">my only limitations to interacting with me is if you are under 14/older than 18</h3>
-
-- some of my interests include: **Spider-Man, MLP, MHA, Death Note, roblox Piggy, My Street, Hamilton, etc**
-
-- hobbies: **I like to draw and animate, I'm a pretty big band kid (I know how to play 4 instruments), I like doing my makeup and my hair, and many more things**
-
-- music I like: **Metallica, Lil Peep, Olivia Rodrigo, and pretty much anything, I like all types of music (yes even country)**
-
-- if I don't answer, it's cuz I didn't notice, NOT because I'm ignoring you :')
+<h1 align="center">hello i have no friends on this FUCKASS pony game
+<h3 align="center">thank you
   
-- that's basicalllyyyy all.. **thank you for reading :)**
+![PIGGY WEEZER](https://github.com/user-attachments/assets/9b224580-7d6e-4125-9994-fb1a6e35537f)
+
+
