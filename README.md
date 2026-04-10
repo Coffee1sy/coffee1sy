@@ -1,6 +1,8 @@
 <h1 align="center">hello i have no friends on this FUCKASS pony game
-<h3 align="center">thank you
-  
-![PIGGY WEEZER](https://github.com/user-attachments/assets/9b224580-7d6e-4125-9994-fb1a6e35537f)
 
 
+<img width="650" height="670" alt="image" src="https://github.com/user-attachments/assets/7548ce62-4235-4f37-83a4-b653c5830142" />
+
+  <h4 align="center"> im 17 and i like spider-man and roblox
+    
+    thank you
