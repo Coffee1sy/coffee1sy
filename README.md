@@ -1,5 +1,7 @@
 <h3 align="center">17 | 🇺🇸 | she/her | feel free to C+H</h3>
 
+- I have no friends on this game **</3**
+
 - I'm in a lot of fandoms including: **MHA, Hamilton, Pokemon, MLP, Fnaf, etc.**
 
 - I like **Red Bull, playing instruments, sleeping, hiking, drawing/animating, and makeup**
